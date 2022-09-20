@@ -1,6 +1,6 @@
 # Hi I'm Julie 👋👩🏻‍💻
 
-I'm a 20 years old aspiring to become a creative developer, studying at Gobelins and working for Bonjour Paris.🌞
+I'm a 21 years old aspiring to become a creative developer, studying at Gobelins and working for Bonjour Paris.🌞
 
 
 ## Where to find me around the web 🌎:
