@@ -1,6 +1,6 @@
 # Hi I'm Julie 👋👩🏻‍💻
 
-I'm a 23 years old creative developer, former Gobelins and working for Lovelace Paris.
+I'm a 24 years old creative developer, former Gobelins and working for Lovelace Paris.
 
 
 ## Where to find me around the web 🌎:
